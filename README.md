@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DrewcarUp
+- 👀 I’m interested in telegram bot
+- 🌱 I’m currently learning python
+- 📫 How to reach me irjapenttila0@gmail.com, ds: incest20cm4mj
+- ⚡ Fun fact: love eat ice with tomato
